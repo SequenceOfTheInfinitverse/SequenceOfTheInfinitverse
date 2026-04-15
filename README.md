@@ -8,3 +8,4 @@
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/4e5ee7bf3c3cf02d2079cb8a86846906fb5b8856/Screenshot%202026-04-14%20191351.png)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/e9bb2a4ecc509b0f57358f8ef60638f974eafb1d/Screenshot%202026-04-14%20191341.png)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/6a71edd99a9b8f12d04153036445c080c445c8b7/Screenshot%202026-04-14%20191318.png)
+![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/d309b8ad8d22c8d883b7b70d518b3c20804b195c/Screenshot%202026-04-14%20191306.png)
