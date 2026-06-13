@@ -1,19 +1,31 @@
 Some info = 
 
-Plz don't bring up any discourse unless I initiate .   This blog has no dni .
+Plz don't bring up any discourse unless I initiate .   We have no dni .
+
 We r a plural system ( pro ALL system orgins ) of an infinite amount of headmates .   Almost all of our headmates r cosmagenic & / or yumeships .   Doubles & sourcemates PLZ PLZ PLZ interact !!!   Collectively use any prns .
+
 Cosmagenic = Headmates that originate from different realities , universes , timelines , dimensions , realms , etc .
+
 Some hyperfixations & special interests ( some of which our headmates source from ) = Marvel + X-Men , Cattails Wildwood Story , Transformers , CoD , Postal , Duke Nukem , Doom , Dethklok / Metalocalypse , Ponytown , Stranger Things , Hellboy , Wendigoon , Mandela Catalogue , My Hero Academia , idk I'll add more when I think of more .
+
 We use plural & singular terms interchangeable .   We have trouble with knowing who is fronting so we won't have any sign offs , etc , unless we have a strong feeling on who is fronting .
+
 Some other interests we have = sewing , digital & traditional art , collecting figurines & plushies , bracelet & necklace making , reality shifting , I'll add more when I think of more .
+
 We might accidentally int with u if we're on ur dni list , sorry abt that .
+
 We have terrible memory & struggle with remembering ppl , especially online since we can't put a face to a name .   Plz excuse us if we don't remember previous interactions with u .
+
 Heavily encourage ppl to message me but plz b polite & recommend using tone tags since I am a very anxious & paranoid being .
+
 I'm not very expressive irl , my online persona is very different from me irl ! Irl I sometimes lack emotions or am monotone , but sometimes we get really excited & switch up completely ! 
-Yes we like & reblog our own comments & / or posts , I practice self love :)
+
 Bands / Artists I like ( plz note I believe in separating art from the artist , I do not condone harmful or bigotry commited by these artists , I just like their music ! ) = Dethklok , Babymetal , Metallica , Slipknot , Five Finger Death Punch , System of a Down , Red Hot Chilli Peppers , The Offspring , Soundgarden , Sublime , ABBA , Journey , Bon Jovi , Queen , Flavor Foley , Milkypossum , Septicflesh , Brn1ing Brain Sound Industries , Fem&m , Rage Against the Machine , Femtanyl , Weezer , Stomach Book , Missy Elliot , Rob / White Zombie , ADG7 , Gone is Gone , The Caregiver , Laurie Anderson , Tally Hall / Miracle Musical , Henry Hall , Run the Jewels , Imagine Dragons , Toby Fox , Hanabie , Willwood , Insane Clown Posse , The Gathering , Alestorm , Flametal , Aeon , Wax Fang , Scene Queen , xElegyx , I'll add more when I think of them .
+
 Official diagnoses = Dermatomyositis ( auto immune disorder very similar to lupus ) , Arthritis , Autism , OCD , Anxiety , Panic disorder .
+
 Potential / Questioning diagnoses = AntisocialPD , Bipolar , Dissociative Disorder , Dyslexia , Dyscalculia , PTSD , I'll + more when I think of them .
+
 We have vision issues so sorry if we accidentally cover u . We also might respond slowly due to mobility issues .
 
 TW / CW SOME OF THESE R BLINKING & HAVE FLASHING LIGHTS
