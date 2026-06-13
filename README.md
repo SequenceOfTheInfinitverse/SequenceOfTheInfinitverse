@@ -26,7 +26,7 @@ Official diagnoses = Dermatomyositis ( auto immune disorder very similar to lupu
 
 Potential / Questioning diagnoses = AntisocialPD , Bipolar , Dissociative Disorder , Dyslexia , Dyscalculia , PTSD , I'll + more when I think of them .
 
-We have vision issues so sorry if we accidentally cover u . We also might respond slowly due to mobility issues .
+We have vision issues so sorry if we accidentally cover u & we might get confused on navigating / take a few seconds to figure out where I'm going . We also might respond slowly due to mobility issues . 
 
 TW / CW SOME OF THESE R BLINKING & HAVE FLASHING LIGHTS
 ![](https://komarev.com/ghpvc/?username=SequenceOfTheInfinitverse&color=red)
