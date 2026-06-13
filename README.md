@@ -49,6 +49,5 @@ TW / CW SOME OF THESE R BLINKING & HAVE FLASHING LIGHTS
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/7c98f0b26d7f4f8821fe067d003e0bc5118d2732/Tumblr_l_97144833789033.jpg)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/e7b97dfa2c16e5c036e2deb5329d01855db8e724/Tumblr_l_96985392758833.jpg)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/7bd7af153542f87c9bfe40f0d6bedab8b979f772/Tumblr_l_96973147422223.jpg)
-![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/7880712c00a1bf82d98165fa5b10891c9548e42d/Tumblr_l_96666720655778.jpg)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/341901c7b59e960c18ca00ede4af5811dc5946e5/Tumblr_l_96484227303451.jpg)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/30e6b875430fd491520cd0effede96aaa84f33c9/Tumblr_l_83887934098153.jpg)
