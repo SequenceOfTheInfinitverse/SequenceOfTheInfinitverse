@@ -1,5 +1,7 @@
 Some info = 
 
+If I follow u it's prolly bc we have the same interests!
+
 Plz don't bring up any discourse unless I initiate .   We have no dni .
 
 We r a plural system ( pro ALL system orgins ) of an infinite amount of headmates .   Almost all of our headmates r cosmagenic & / or yumeships .   Doubles & sourcemates PLZ PLZ PLZ interact !!!   Collectively use any prns .
