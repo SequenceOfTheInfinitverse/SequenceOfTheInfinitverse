@@ -8,7 +8,7 @@ We r a plural system ( pro ALL system orgins ) of an infinite amount of headmate
 
 Cosmagenic = Headmates that originate from different realities , universes , timelines , dimensions , realms , etc .
 
-Some hyperfixations & special interests ( some of which our headmates source from ) = Marvel + X-Men , Cattails Wildwood Story , Transformers , CoD , Postal , Duke Nukem , Doom , Dethklok / Metalocalypse , Ponytown , Stranger Things , Hellboy , Wendigoon , Mandela Catalogue , My Hero Academia , idk I'll add more when I think of more .
+Some hyperfixations & special interests ( some of which our headmates source from ) = Marvel + X-Men , Cattails Wildwood Story , Transformers , CoD , Postal , Duke Nukem , Doom , Dethklok / Metalocalypse , Ponytown , Stranger Things , Hellboy , Wendigoon , Mandela Catalogue , My Hero Academia , Warhammer 40k , idk I'll add more when I think of more .
 
 We use plural & singular terms interchangeable .   We have trouble with knowing who is fronting so we won't have any sign offs , etc , unless we have a strong feeling on who is fronting .
 
